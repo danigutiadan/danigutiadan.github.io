@@ -1,1 +1,0 @@
-# danigutiadan.github.io
